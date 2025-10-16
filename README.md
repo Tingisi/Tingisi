@@ -1,16 +1,15 @@
-## Hi there 👋
+# A little about me !! :)
+✩₊˚.⋆☾⋆⁺₊✧✩₊˚.⋆☾⋆⁺₊✧✩₊˚.⋆☾⋆⁺₊✧✩₊˚.⋆☾⋆⁺₊✧✩₊˚.⋆☾✧✩₊˚.⋆☾⋆⁺₊✧✩
 
-<!--
-**Tingisi/Tingisi** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Ꮺ Hii feel free to sit with me unless its says otherwise in my name, if youre unsure just whisper me to ask :)!! 
 
-Here are some ideas to get you started:
+✩₊˚.⋆☾⋆⁺₊✧✩₊˚.⋆☾⋆⁺₊✧✩₊˚.⋆☾⋆⁺₊✧✩₊˚.⋆☾⋆⁺₊✧✩₊˚.⋆☾✧✩₊˚.⋆☾⋆⁺₊✧✩
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+ ๋࣭ ⭑ ➴ I Only have one screen and im often idle, so if i don't respond right away, im probably on another website Ꮺ
+
+ ✩₊˚.⋆☾⋆⁺₊✧✩₊˚.⋆☾⋆⁺₊✧✩₊˚.⋆☾⋆⁺₊✧✩₊˚.⋆☾⋆⁺₊✧✩₊˚.⋆☾✧✩₊˚.⋆☾⋆⁺₊✧✩
+
+ Im not the best talker and im pretty awkward, so i like to just sit in silence, but feel free to chat with me !!
+
+ ✩₊˚.⋆☾⋆⁺₊✧✩₊˚.⋆☾⋆⁺₊✧✩₊˚.⋆☾⋆⁺₊✧✩₊˚.⋆☾⋆⁺₊✧✩₊˚.⋆☾✧✩₊˚.⋆☾⋆⁺₊✧✩
+ 
